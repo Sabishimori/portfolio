@@ -17,8 +17,7 @@ https://www.behance.net/sagar_designlab
 
 ## 📄 Resume
 
-[Download Resume]
-
+[Download Resume](./sagar%20srinivasan%20cv.pdf)
 ---
 
 ## 🧠 What I Focus On
